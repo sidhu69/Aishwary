@@ -12,3 +12,14 @@
 
 <h1>Aishwary Exposed</h1>
 
+We need to be wary of individuals like Aishwary, who engage in harmful online actions. Aishwary, by collaborating with others to hack accounts and exploit personal moments, shows a lack of respect for privacy and decency. Such actions not only hurt individuals like Subhashree but also create a toxic online environment.
+
+Additionally, Aishwary's involvement in scams, where he deceives people for money, adds another layer of dishonesty. It's important to recognize that these behaviors are not acceptable. People like Aishwary betray trust, causing emotional distress and financial harm.
+
+To protect ourselves and others, we must raise awareness about these digital wrongdoers. Encouraging a culture of accountability and reporting such activities helps create a safer online space for everyone. Let's unite against deceptive actions, promoting a digital community built on trust, empathy, and fairness.
+
+
+
+[![Watch the Instagram Video](insert_thumbnail_url)](https://www.instagram.com/reel/C0KAg2rpJwO/?igshid=ZDE1MWVjZGVmZQ==)
+
+**Scam Proofs**
