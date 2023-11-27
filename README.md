@@ -20,6 +20,6 @@ To protect ourselves and others, we must raise awareness about these digital wro
 
 
 
-[![Watch the Instagram Video](insert_thumbnail_url)](https://www.instagram.com/reel/C0KAg2rpJwO/?igshid=ZDE1MWVjZGVmZQ==)
+[![Watch the Instagram Video](https://t.me/oisindia/2)](https://www.instagram.com/reel/C0KAg2rpJwO/?igshid=ZDE1MWVjZGVmZQ==)
 
 **Scam Proofs**
